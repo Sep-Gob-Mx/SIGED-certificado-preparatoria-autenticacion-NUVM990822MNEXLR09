@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-NUVM990822MNEXLR09
+NUVM990822MNEXLR09
